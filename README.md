@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Creation2283
+00- 👋 Hi, I’m @Creation2283
 - 👀 I’m interested in Animations & Graphics Designing
 - 🌱 I’m currently learning Python
-- 📫 How to reach me dcv112006@gmail.com
+- 📫 How to reach me :- Discord Username = creation.exr#2196
 - 📱 Socials:-
    
    • Youtube = www.youtube.com/c/DhirenVasnaniOfficial?sub_confirmation
