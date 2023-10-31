@@ -1,11 +1,14 @@
 - 👋 Hi, I’m @Creation2283
 
-- 👀 I’m interested in Animations & Graphics Designing
+- 👀 I’m interested in Animations, Graphics Designing & I also code sometimes.
 
-- 📫 How to reach me :- Discord Username = creation.exr#2196
+- 📫 How to reach me :-
+
+- Discord: creation.exr
 
 - 📱 Socials:-
-    • [Youtube](www.youtube.com/c/DhirenVasnaniOfficial?sub_confirmation)
+
+  • [Youtube](www.youtube.com/c/DhirenVasnaniOfficial?sub_confirmation)
    • [Discord Server](https://discord.gg/yQ72GM8HFU)
    • [Instagram](https://www.instagram.com/dhiren_vasnani/)
 <!---
